@@ -1,2 +1,2 @@
-# Rushyanth-s-profile
+# Rushyanth's-profile
 About me
